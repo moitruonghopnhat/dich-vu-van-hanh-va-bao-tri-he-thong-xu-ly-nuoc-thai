@@ -2,7 +2,7 @@
 
 > Giải pháp hỗ trợ doanh nghiệp duy trì hệ thống xử lý nước thải vận hành ổn định, hạn chế sự cố, tối ưu chi phí và đáp ứng yêu cầu xả thải theo quy định.
 
-Công ty Cổ phần Xây dựng và Công nghệ Môi trường Hợp Nhất là đơn vị có hơn 10 năm kinh nghiệm trong tư vấn, thiết kế, thi công, lắp đặt và **vận hành, bảo trì hệ thống xử lý nước thải**. Với kinh nghiệm thực tế và sự am hiểu về các yêu cầu môi trường, Hợp Nhất hỗ trợ doanh nghiệp duy trì hệ thống ổn định để tập trung cho hoạt động sản xuất, kinh doanh.
+Công ty Cổ phần Xây dựng và Công nghệ Môi trường Hợp Nhất là đơn vị có hơn 15 năm kinh nghiệm trong tư vấn, thiết kế, thi công, lắp đặt và **vận hành, bảo trì hệ thống xử lý nước thải**. Với kinh nghiệm thực tế và sự am hiểu về các yêu cầu môi trường, Hợp Nhất hỗ trợ doanh nghiệp duy trì hệ thống ổn định để tập trung cho hoạt động sản xuất, kinh doanh.
 
 ![Dịch vụ vận hành và bảo trì hệ thống xử lý nước thải](https://moitruonghopnhat.com/uploads/images/Dich-vu/dich-vu-van-hanh-bao-tri-he-thong-xu-ly-nuoc-thai.jpg)
 
